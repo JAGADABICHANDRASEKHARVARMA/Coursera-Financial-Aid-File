@@ -21,6 +21,10 @@ better at anything, this course will help serve as my guide. I’ll see a struct
 through what i need to do to get on track. will be very happy to have this course through this wonderful educational platform and I hope
 you will accept my application because it will help me very much in my career in the future.
 
+## Would you consider using a low-interest loan to pay for your courses?
+  ### Yes or No
+ 
+ ### If it is NO then
 ## If you answered no, please help us understand why?
 
 I am a full time student and i can not afford to take a loan to pay for the course
