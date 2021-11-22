@@ -27,4 +27,4 @@ you will accept my application because it will help me very much in my career in
  ### If it is NO then
 ## If you answered no, please help us understand why?
 
-I am a full time student and i can not afford to take a loan to pay for the course
+I am a full-time student and I can not afford to take a loan to pay for the course
