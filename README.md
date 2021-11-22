@@ -15,10 +15,10 @@ Through your support I will learn more in black and increase my determination an
 Getting this course will help me a lot, and I will learn from him many useful things for me and will help me deal with people better and
 most importantly that he will help me to work and in my career in the near future. I will gain many experiences that will help me meet the
 challenges. And this is one of the most important things that will benefit me in my personal life and with my family and I will learn how
-to develop society and help to educate people and encourage them to help people who are unable to some things in life. I’ll see
-a structured treasure trove of practical techniques that walk you through what me need to do to get on track. If i’ve ever wanted to become
+to develop social and help to educate people and encourage them to help people who are unable to do some things in life. I’ll see
+a structured treasure trove of practical techniques that walk you through what I need to do to get on track. If I’ve ever wanted to become
 better at anything, this course will help serve as my guide. I’ll see a structured treasure trove of practical techniques that walk me
-through what i need to do to get on track. will be very happy to have this course through this wonderful educational platform and I hope
+through what I need to do to get on track. will be very happy to have this course through this wonderful educational platform and I hope
 you will accept my application because it will help me very much in my career in the future.
 
 ## Would you consider using a low-interest loan to pay for your courses?
