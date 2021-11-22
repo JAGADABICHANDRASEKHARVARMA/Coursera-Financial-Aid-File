@@ -2,13 +2,13 @@
 
 ## Why are you applying for Financial Aid?
 
-I'm still a student, i didn't start my career yet and i need the financial aid because i can't afford the courses without having a job.
-I had no job and my family income is low, and i was in government school which means that i had free education in my country.
+I'm still a student, I didn't start my career yet and I need financial aid because I can't afford the courses without having a job.
+I had no job and my family income is low, and I was in government school which means that I had free education in my country.
 My family recently has many financial problems.
-I am still small to work and I do not have the money to buy the courses I do not have the Visa to pay.
+I am still small to work and I do not have the money to buy the courses I do not have the Visa to pay for.
 Nor can I get this course anywhere else because its cost is high and I can not pay.
 And access to this financial support will help me to access the content of this course and start learning and this is what I want because I can not afford the financial cost of this course.
-Through your support I will learn more in black and increase my determination and determination to love self learning online.
+Through your support, I will learn more in black and increase my determination and determination to love self-learning online.
 
 ## How will taking this course help you achieve your career goals?
 
